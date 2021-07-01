@@ -7,6 +7,7 @@
 - 3 colheres de sopa de óleo
 - 2 latas de creme de leite sem soro
 - 2 colheres de sopa de molho de tomate
+- Uma colher de sal
 
 ### Modo de Preparo
 
