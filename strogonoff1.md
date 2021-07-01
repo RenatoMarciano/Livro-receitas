@@ -17,4 +17,3 @@
 2. Mexer.
 3. Colocar no forno.
 4. Retirar depois de 30 min.
-5. Acresenta o Bacon
